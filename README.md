@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-email : gm0129@yu.ac.kr
+E-mail : gm0129@yu.ac.kr
